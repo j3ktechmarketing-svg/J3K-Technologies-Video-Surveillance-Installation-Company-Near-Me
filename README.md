@@ -15,7 +15,7 @@ Businesses in Duluth often operate in logistics, light industrial, and commercia
 
 ### Video Surveillance Installation Company Decatur Near Me
 
-Decatur organizations require reliable and adaptable security solutions. J3K Technologies delivers **[video surveillance installation company Decatur near me]()** services with careful planning, clean installation, and systems built for long-term use in active facilities.
+Decatur organizations require reliable and adaptable security solutions. J3K Technologies delivers **video surveillance installation company Decatur near me]** services with careful planning, clean installation, and systems built for long-term use in active facilities.
 
 ### Video Surveillance Installation Company Atlanta Near Me
 
