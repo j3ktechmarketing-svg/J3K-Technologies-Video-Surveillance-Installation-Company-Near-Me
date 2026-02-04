@@ -75,8 +75,6 @@ Malls and large commercial centers require extensive coverage across public and 
 
 A well-installed surveillance system reduces maintenance issues, improves footage reliability, and supports confident decision-making. J3K Technologies emphasizes quality installation as the foundation for effective long-term surveillance, helping organizations avoid costly rework and system limitations.
 
-Reference materials and additional insights related to surveillance planning and installation best practices are available through < > and < > for organizations seeking deeper technical guidance.
-
 ---
 
 ### Work With a Trusted Video Surveillance Installation Partner
